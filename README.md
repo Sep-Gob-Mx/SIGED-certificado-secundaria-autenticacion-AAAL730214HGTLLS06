@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAAL730214HGTLLS06
+AAAL730214HGTLLS06
